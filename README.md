@@ -1,6 +1,5 @@
 
 
-![Uploading Screen Shot 2024-01-04 at 16.06.52.png…]()
 
 
 
